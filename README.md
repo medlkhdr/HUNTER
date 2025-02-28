@@ -32,6 +32,7 @@ I'm a passionate **Computer Science student** at **FSSM** and a **1337 student**
 ### 🔗 Connect with Me
 
 📧 Email: m0h4m3dl4khd4r@gmail.com
+
 💼 LinkedIn: [Mohamed Lakhdar](https://www.linkedin.com/in/mohamed-lakhdar-b5975b296/)  
 
 ---
